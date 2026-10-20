@@ -1,1 +1,1 @@
-# Spotify-Capstone-Group-Project-
+# Spotify-Capstone-Group-Project
